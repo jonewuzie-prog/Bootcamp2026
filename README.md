@@ -1,1 +1,0 @@
-# RHCSA at NIT
